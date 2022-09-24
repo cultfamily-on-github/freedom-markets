@@ -9,6 +9,6 @@ Privacy is not a crime - [see also](https://twitter.com/Peer2peerE/status/156571
 
 ![Screenshot 2022-09-24 at 14 15 17](https://user-images.githubusercontent.com/43786652/192097387-96c06952-d6e3-4346-9e69-16f8bcdbf926.png)
 
-The most dangerous criminals are probably the ones who pretend to be politicians or central bankers.   
+The most dangerous criminals are probably the ones who pretend to be politicians or (esp. central...) bankers.   
 
 
